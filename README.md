@@ -2,7 +2,7 @@
 - 👋 Hi, I’m @DnyaneshwariPatale
 - 👀 I’m interested in Data science👩🏼‍🔬 & WebD
 - 🌱 I’m currently learning many things 👩🏻‍🎓
-- 💞️ I’m looking to collaborate on git 
+- 💞️ I’m looking to collaborate on new ideas 💡 
 - 📫 How to reach me @dnyaneshwaripatale14@gmail.com
 - ⚡ Fun fact : like waching cartoons 🙊
 
